@@ -1,1 +1,1 @@
-CMOS Develop creative solutions for companies of all niches.
+Walliroom Studio creative solutions for companies of all niches.
